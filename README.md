@@ -5,9 +5,11 @@ Alzheimer's affects millions and is one of the most damaging and widespread dise
 
 Streamers who've played it have amassed over 7 million followers. Additionally, it's been featured in various state newspapers and media outlets. I greatly appreciate the dissemination to raise awareness about this disease.
 
-If you'd like to experience it, the island code is: 🌐 7230-3324-3779!
+If you'd like to experience it, the island code is: 🌐 7230-3324-3779
+
 And if you want to collaborate with CEAFA against Alzheimer's, visit: https://lnkd.in/dKXqh8_8
 Read more in the news:
+
 https://lnkd.in/dz_g8TiG
 https://lnkd.in/dB62ubwy
 
